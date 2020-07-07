@@ -1,1 +1,1 @@
-# Studeor
+# Lionize-School
